@@ -1,0 +1,1 @@
+Penguin sprites from https://wiki.themanaworld.org/index.php/User:Fother/Pixel_Art
